@@ -1,0 +1,3 @@
+# 70 receitas fáceis que vão deixar sua vida muito mais simples e gostosa. 
+
+As receitas fáceis são uma mão na roda para quem mora sozinho ou não tem muito tempo para cozinhar. Com poucos ingredientes, elas podem ser feitas em poucos minutos. Algumas chegam a sujar uma panela só! Para conseguir resultados incríveis aproveitando itens que você já tem em casa, confira receitas fáceis e rápidas para todos os tipos de fome:
